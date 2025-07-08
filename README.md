@@ -10,4 +10,4 @@
 
 本页面汇聚中国国产一级影片资源，涵盖动漫、剧情、精品推荐等多个类型，满足不同观众的观看需求。所有影片均支持高清免费播放，加载速度快，无广告干扰。平台每日更新，内容丰富，适合喜欢国产高质量片源的用户收藏浏览。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/doi20250708/doi5 ）</span>
